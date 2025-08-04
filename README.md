@@ -62,3 +62,19 @@ Priya darshni mam say some common Universal Human Values include are:
 She say these values are called universal because they are accepted and respected by people all over the world, and they help create a just and peaceful society.<br>
 
  After that the seesion is ended at 1pm
+ <h1>DAY 4</h1>
+The p2p lecture start at 9:30 am by seniors in room f-108 I had my first P2P (Peer-to-Peer) lecture, and it was a wonderful experience. Our seniors took the session and explained important topics like algorithms, compilers, pseudocode, and programming basics.
+They were very friendly, supportive, and explained everything in a simple way.
+I also got to learn a few new things that I wasn’t aware of before.<br>
+
+My second lecture BEEE( Basics of Electrical and Electronic Engineering) starts at 10:30
+Our professor, Ms. Harminder Kaur, took the class and gave us an introduction to the basics of electrical engineering.
+She explained topics like DC circuits, AC circuits, machines, electronics engineering, digital electronics, PN junction diode, and transistors.
+After that, she asked each of us to introduce ourselves by sharing our name, 12th percentage, strengths, and weaknesses.
+It was interesting to hear everyone’s responses, and the class helped us get comfortable with each other.
+The lecture ended at 11:30 AM 
+It felt good to interact with them and I’m really looking forward to more such sessions and it ends at 10:30 <br>
+After that 1 hour break 11:30 to 12:30 <br>
+Our next lecture started at 12:30 (UHV)'Universal Human Values' by Dr Priya Darshni madam in auditorium the basic values that guide our behavior and help us live in harmony with ourselves, others, and nature. They include values like truth, love, peace, respect, honesty, trust, compassion, and responsibility. UHV helps us understand the importance of relationships, human dignity, and ethical living.
+It teaches us how to make the right decisions by understanding what is truly valuable in life—not just material success but inner happiness and human connection. Learning these values is important for becoming a good human being and a responsible citizen it was a very good session I got know about so many new things and also was able to find solution for my problems and their session ended at 2:30 <br>
+From 2:30 our next session started by causmic club in auditorium it was a very good session we got to know about causmic club what they do about there activities. After that one senior student came to the stage and he started to sing playing guitar he was playing guitar so well and his voice was also really good he sang so many songs and it was really good after that they also told us about which laptop should we buy according to our use and specs of laptop, pads. and our this session went really well It ended around 3:40 pm <br>
